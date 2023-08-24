@@ -1,4 +1,4 @@
-# Hi, I'm Kartik Sahrma
+# Hi, I'm Kartik Sharma
 
 
 
